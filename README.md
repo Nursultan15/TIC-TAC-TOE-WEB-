@@ -4,7 +4,7 @@ My Project(VIDEO) : https://drive.google.com/file/d/1v-yuy_IozICPZPjBN-GMJyVBQVU
 
 
 
-Video Feedback : https://drive.google.com/file/d/1n9Nv1Ey6gSwvY5057dzXcmWhV1brvZZD/view?usp=sharing
+Video Feedback from Adilbek Abdyrsulov : https://drive.google.com/file/d/1n9Nv1Ey6gSwvY5057dzXcmWhV1brvZZD/view?usp=sharing
 
 
 
@@ -14,4 +14,23 @@ Presentation : https://docs.google.com/presentation/d/1-VKgCAsAeT15yyFY8dGCFEX7H
 
 
 
-Feedback from Nurak Karabekov: I like that style, it is easy to understand and to use. There is no any extra buttons, that will bother. An green color looks friendly, but you need to do some improvements. I hope in the future you will understand you faults and will be one of the good programmers .
+Feedback from Nurak Karabekov : I like that style, it is easy to understand and to use. There is no any extra buttons, that will bother. An green color looks friendly, but you need to do some improvements. I hope in the future you will understand you faults and will be one of the good programmers .
+
+
+
+
+
+Feedback from Aibek Karshiboev :
+
+
+
+
+
+
+Feedback from Nurmuhammed :
+
+
+
+
+
+Feedback from Aidar Matazimov :
