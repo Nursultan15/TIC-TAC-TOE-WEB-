@@ -32,5 +32,10 @@ Feedback from Nurmuhammed :
 
 
 
+Feedback from Salamatbek Mambetkadyrov :
+
+
+
+
 
 Feedback from Aidar Matazimov :
