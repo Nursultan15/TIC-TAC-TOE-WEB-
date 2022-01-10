@@ -9,6 +9,14 @@ Video Feedback from Adilbek Abdyrsulov : https://drive.google.com/file/d/1n9Nv1E
 
 
 
+
+Video feedback from Aibek Karshiboev : https://drive.google.com/file/d/1BiiT1ImmNNtMNh-UL_1M08hZ_2B0WZ2t/view?usp=sharing
+
+
+
+
+
+
 Presentation : https://docs.google.com/presentation/d/1-VKgCAsAeT15yyFY8dGCFEX7H3Vhb1pH/edit?usp=sharing&ouid=100966175703683073870&rtpof=true&sd=true
 
 
@@ -20,7 +28,7 @@ Feedback from Nurak Karabekov : I like that style, it is easy to understand and 
 
 
 
-Feedback from Aibek Karshiboev :
+
 
 
 
